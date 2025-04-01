@@ -13,4 +13,4 @@ Analitik psikoloji, bireyin kendini keşfetmesi için çeşitli yöntemler öner
 Bir diğer önemli yöntem ise rüya analizi olarak öne çıkar. Jung'a göre, rüyalar bilinçdışının mesajlarını içerir ve bireyin ruhsal durumuna dair önemli ipuçları sunar. Bu nedenle, rüya analizi, analitik psikolojinin temel unsurlarından biri olarak kabul edilir.
 Analitik psikoloji, aynı zamanda bireyin psikolojik bütünlüğünü sağlamayı hedefleyen bir süreç olan gölge çalışmasını da içerir. Jung'un geliştirdiği bu kavram, bireyin bilinçli olarak reddettiği ya da bastırdığı yönlerini temsil eder. Kendi gölgesiyle yüzleşen birey, ruhsal gelişim sürecinde önemli bir aşama kaydeder.
 
-https://cosskozmetik.com/
+https://www.bilincdisiyayinlari.com/
